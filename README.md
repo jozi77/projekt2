@@ -1,1 +1,5 @@
-# projekt2
+ljkdasfljhf
+fslfjsf
+sfkisflsjflsf
+asjlsfjiesloifjdslfjasfň
+sklfsf
